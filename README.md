@@ -2,7 +2,7 @@
 <div align="center">
     
 
-<a href="https://rentry.co/striderdave"> rentry </a>
+<a href="https://rentry.co/vonkrugers"> rentry </a>
 
 ⸻⸻⸻
 
