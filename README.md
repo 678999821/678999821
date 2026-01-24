@@ -9,10 +9,8 @@
 
 
 im a he/him but any prns are ok <br>
-not sober most of the time. but im not drunk bro
-
-c+h with me lord how many times is it needed for me to repeat that people can c+h <br>
-in the noncorniest way: i dont bite that hard, please Interact. this game gets boring <br>
+not sober most of the time. but im not drunk either
+c+h enc unless stated so. :)
 
 ⸻⸻⸻
 
